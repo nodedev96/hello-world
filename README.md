@@ -1,5 +1,5 @@
 # hello-world
 
-Hi Earthians
+Hi Mfs
 
-Message from Goddy, I have travelled far and near across this vase space called the  web. During my travels, I 've encountered many strange rooms, and open doors. Here is my repoert. 
+Message from brazzi, I have travelled far and near across this vase space called the  web. During my travels, I 've encountered many strange rooms, and open doors. Here are my logs. 
